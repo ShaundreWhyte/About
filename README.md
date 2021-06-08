@@ -1,4 +1,4 @@
- I’m a result - driven and solution orirnted IT professional pursuing a career in Full-Stack Development. I am natural passionate about technology and programming solution using different coding language.
+ I’m a result - driven and solution orirnted IT professional pursuing a career in Software Engineer I am natural passionate about technology and programming solution using different coding language.
  
 Toronto,ON
 Email: shaundrewhyte@gmail.com 
