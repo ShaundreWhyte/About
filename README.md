@@ -1,4 +1,4 @@
- I’m a result - driven and solution orirnted IT professional pursuing a career in Software Engineer I am natural passionate about technology and programming solution using different coding language.
+ A result - driven and solution orirnted IT professional pursuing a career in Software Engineer I am natural passionate about technology and programming solution using different coding language.
  
 Toronto,ON
 
